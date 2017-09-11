@@ -1,1 +1,1 @@
-# MEDT_4AI
+# MEDT Adrian Gawor
